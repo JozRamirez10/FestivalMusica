@@ -1,1 +1,1 @@
-# FestivalMusica
+# Rock & EDM Festival
